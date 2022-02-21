@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sem237
 - 👀 I’m interested in lot of things
 - 🌱 I’m currently learning a lot of things
-- 💞️ I’m looking to collaborate on a lot of things.
+- 💞️ I’m looking to collaborate on  anythings
 - 📫 How to reach me on your heart
 
 <!---
