@@ -2,7 +2,7 @@
 - 👀 I’m interested in lot of things
 - 🌱 I’m currently learning a lot of things
 - 💞️ I’m looking to collaborate on  anythings
-- 📫 How to reach me on your heart
+- 📫 How to reach me? in your heart
 
 <!---
 Sem237/Sem237 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
