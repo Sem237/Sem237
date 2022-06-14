@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sem237
+- 👋 Hi, I’m Juan Castagnino
 - 👀 I’m interested in lot of things
 - 🌱 I’m currently learning a lot of things
 - 💞️ I’m looking to collaborate on  anythings
